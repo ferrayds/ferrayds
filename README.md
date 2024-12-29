@@ -46,9 +46,9 @@ N'hésitez pas à explorer, contribuer et partager vos retours avec nous !
 
 Vous avez un projet en tête ou des questions ? Nous serions ravis de discuter avec vous !
 
-Site web : www.ferraydigitalsolutions.com
+Site web : www.ferraydigitalsolutions.bj
 
-Email : contact@ferraydigitalsolutions.com
+Email : contact@ferraydigitalsolutions.bj
 
 LinkedIn : https://www.linkedin.com/company/ferray-digital-solutions/
 
